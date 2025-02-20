@@ -12,8 +12,9 @@ This is a collection of my **poems, prose, and literary works**, where I explore
 Writing is more than just words—it's an expression of **thoughts, emotions, and perspectives**. This space is dedicated to creativity, storytelling, and the beauty of language.  
 
 ## 🌍 Connect With Me  
-- **GitHub:** [Your GitHub Profile Link]  
-- **Instagram/Twitter (if applicable):** [Your Social Media Handle]  
-- **Email:** [Your Email Address]  
+- **GitHub:** [ttps://github.com/Nishan-10-GIT)]  
+- **Instagram/Twitter (if applicable):** [https://www.instagram.com/poems_by_vn![image](https://github.com/user-attachments/assets/3dc1105b-4014-4fef-b786-ac5b387a1e81)
+]  
+- **Email:** [nishailabu32@gmail.com]  
 
 🖋 **Feel free to explore, share, and let me know what you think!** ✨  
